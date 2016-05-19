@@ -1,1 +1,1 @@
-# studyNotes
+# my own study stuffy
